@@ -1,1 +1,7 @@
 ![WhatsApp Image 2023-08-05 at 23 29 02](https://github.com/Sandra2208/OnlineStore/assets/98791783/b17c8195-1e79-4cda-88e7-55cf2e69a0c7)
+![WhatsApp Image 2023-08-05 at 23 32 49](https://github.com/Sandra2208/OnlineStore/assets/98791783/37d80383-1025-406c-90e8-8b1843edfa3c)
+![WhatsApp Image 2023-08-05 at 23 33 51](https://github.com/Sandra2208/OnlineStore/assets/98791783/9199d8ae-9def-4ac8-a534-2899c9e4cdbb)
+![WhatsApp Image 2023-08-05 at 23 34 43](https://github.com/Sandra2208/OnlineStore/assets/98791783/5f83eb33-4b68-471f-9f4b-1fd565ca0dac)
+![WhatsApp Image 2023-08-05 at 23 35 06](https://github.com/Sandra2208/OnlineStore/assets/98791783/0ffee64c-7d1c-410b-817d-9b564d7d5b3c)
+![WhatsApp Image 2023-08-05 at 23 35 33](https://github.com/Sandra2208/OnlineStore/assets/98791783/f6eba00b-b4f2-4152-aee7-5f38c468daf3)
+![WhatsApp Image 2023-08-05 at 23 35 44](https://github.com/Sandra2208/OnlineStore/assets/98791783/83148289-a802-4da0-b19c-c2fd8ec37dca)
